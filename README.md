@@ -1,2 +1,6 @@
 # testiroval-
 testiroval
+Проходим по ссылкам в архиве...
+Открытое ПО
+Описание коментариев по закону судочинства и союза А и глухих Б....
+![donate](https://user-images.githubusercontent.com/89662644/133751201-30ad1781-9de0-4f43-8a76-55fd1c1e912e.jpg)
